@@ -20,7 +20,7 @@ Each month there will be a grand prize such as Apple iPhones, Macbooks, etc.
 At the end of the month, the person who writes the best quality blogs will win the grand prize.
 
 ### Special track
-Apart from the 4 tracks mentioned above, we will occasionally be having a special track as well. This special track will be based on a certain theme for the month. 
+Apart from the 4 tracks mentioned below, we will occasionally be having a special track as well. This special track will be based on a certain theme for the month. 
 
 You can write blogs on the given theme, submit them, and win a special prize as well. 
 
